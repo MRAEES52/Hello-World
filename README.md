@@ -1,2 +1,2 @@
-# Hello-World
-Trying something new.
+Portfolio zip file with instructions. 
+HAVE FUN! 
